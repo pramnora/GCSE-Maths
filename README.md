@@ -1,5 +1,12 @@
 # GCSE-Maths
 
+**Created**: *Sun 20 Oct 2024 21:27 PM GMT*   
+**Updated**: *Sun 20 Oct 2024 21:27 PM GMT*   
+
+-----
+
+## Studying
+
 I'm currently studying to pass GCSE Maths at:    
 - https://www.wmcollege.ac.uk  
 ...the software the college uses is:  
@@ -8,9 +15,6 @@ I'm currently studying to pass GCSE Maths at:
     
 I thought adding some *links* I find here might be able to help prepare me a lot more effectively.   
   
-**Created**: *Sun 20 Oct 2024 21:27 PM GMT*   
-**Updated**: *Sun 20 Oct 2024 21:27 PM GMT*   
-
 -----
 
 ## Links

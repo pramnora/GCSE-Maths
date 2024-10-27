@@ -75,3 +75,9 @@ Circle Theorems - GCSE Maths Higher (YouTube Channel: HEGARTYMATHS)
 
 -----
 
+### Ratios
+
+Ratio Word Problems (Simplifying Math) | Buffington
+- https://www.youtube.com/watch?v=HjweqJLuOFw
+
+-----

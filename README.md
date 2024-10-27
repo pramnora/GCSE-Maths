@@ -47,6 +47,8 @@ I thought adding some *links* I find here might be able to help prepare me a lot
 Circumference and Perimeter (Simplifying Math) / (YouTube Channel: Buffington)  
 - https://www.youtube.com/watch?v=r9ZUYYb3kNw  
 
+### Circle Theorems
+
 Circle Theorems | GCSE Maths / (YouTube Channel: GCSE Maths Rocket)
 - https://www.youtube.com/watch?v=IZPrTLPN0QI&t=345s
 

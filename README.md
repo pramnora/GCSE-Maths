@@ -50,6 +50,10 @@ Circumference and Perimeter (Simplifying Math) / (YouTube Channel: Buffington)
 Circle Theorems | GCSE Maths / (YouTube Channel: GCSE Maths Rocket)
 - https://www.youtube.com/watch?v=IZPrTLPN0QI&t=345s
 
+Circle theorems (EVERYTHING you need to know!) Higher GCSE Maths / (Maths Kitchen)  
+- https://www.youtube.com/watch?v=LiDtSmRNdyA  
+
+
 
 -----
 

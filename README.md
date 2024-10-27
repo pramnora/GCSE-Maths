@@ -65,6 +65,8 @@ PHYMICS
 All of the Circle Theorems in 10 Minutes!! | Circle Theorem Series Part 1 | GCSE Maths Tutor   
 - https://www.youtube.com/watch?v=3qwP-zMfCDw  
 
+Circle Theorems - GCSE Maths Higher (YouTube Channel: HEGARTYMATHS)  
+- https://www.youtube.com/watch?v=BDqELk2xCPU  
 
 -----
 

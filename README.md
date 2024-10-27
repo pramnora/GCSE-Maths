@@ -55,6 +55,9 @@ Circle Theorems | GCSE Maths / (YouTube Channel: GCSE Maths Rocket)
 Circle theorems (EVERYTHING you need to know!) Higher GCSE Maths / (Maths Kitchen)  
 - https://www.youtube.com/watch?v=LiDtSmRNdyA  
 
+Circle Theorems / (YouTube Channel: The Organic Chemistry Tutor)  
+- https://www.youtube.com/watch?v=GppOSNTi5OA  
+
 
 
 -----

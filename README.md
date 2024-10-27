@@ -79,6 +79,12 @@ Circle Theorem Proofs - GCSE Higher Maths | 1st Class Maths
 CIRCLE THEOREMS: How to solve different Circle theorem problems | ICOMATHS   
 - https://www.youtube.com/watch?v=26br7LNwETM  
 
+### Perimeter
+
+Perimeter of a Sector | Peter Blake  
+- https://www.youtube.com/watch?v=j64NyaCbcGU
+  
+
   
 -----
 

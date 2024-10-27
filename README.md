@@ -1,7 +1,7 @@
 # GCSE-Maths
 
 **Created**: *Sun 20 Oct 2024 21:27 PM GMT*   
-**Updated**: *Sun 20 Oct 2024 21:27 PM GMT*   
+**Updated**: *Sun 27 Oct 2024 13:02 PM GMT*   
 
 -----
 
@@ -23,15 +23,29 @@ I thought adding some *links* I find here might be able to help prepare me a lot
 
 ## YouTube
 
+-----
+
+## Basic Operations: Add/Subtract/Multiply/Divide
+
 ### Multiplication
 
 2 Digit Multiplication easily | Brain Games | Brain Development / (YouTube Channel: Brain Development)  
 - https://www.youtube.com/watch?v=DRtCZXSW5jQ
   
-### Fractions
+-----
+
+## Fractions
 
 - https://www.youtube.com/shorts/5f_VPizGVUk
 
+-----
+
+## Geometry
+
+### Circles
+
+Circumference and Perimeter (Simplifying Math) / (YouTube Channel: Buffington)  
+- https://www.youtube.com/watch?v=r9ZUYYb3kNw  
 
 -----
 

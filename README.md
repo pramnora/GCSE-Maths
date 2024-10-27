@@ -58,6 +58,12 @@ Circle theorems (EVERYTHING you need to know!) Higher GCSE Maths / (Maths Kitche
 Circle Theorems / (YouTube Channel: The Organic Chemistry Tutor)  
 - https://www.youtube.com/watch?v=GppOSNTi5OA  
 
+Every Theorem on Circle with Proofs.| Theorem on Circles.| Class 9 |NCERT.
+PHYMICS  
+- https://www.youtube.com/watch?v=gam_RKwZQfg  
+
+All of the Circle Theorems in 10 Minutes!! | Circle Theorem Series Part 1 | GCSE Maths Tutor   
+-https://www.youtube.com/watch?v=3qwP-zMfCDw  
 
 
 -----

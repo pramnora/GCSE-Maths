@@ -73,6 +73,13 @@ All of the Circle Theorems in 10 Minutes!! | Circle Theorem Series Part 1 | GCSE
 Circle Theorems - GCSE Maths Higher (YouTube Channel: HEGARTYMATHS)  
 - https://www.youtube.com/watch?v=BDqELk2xCPU  
 
+Circle Theorem Proofs - GCSE Higher Maths | 1st Class Maths  
+- https://www.youtube.com/watch?v=CmprPWcLtlk
+
+CIRCLE THEOREMS: How to solve different Circle theorem problems | ICOMATHS   
+- https://www.youtube.com/watch?v=26br7LNwETM  
+
+  
 -----
 
 ### Ratios
